@@ -1,0 +1,2 @@
+# ahmads
+privacy policy
